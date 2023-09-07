@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **kartickjana020@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/91843/Documents/My%20Resume/resume_kartickjana_02.pdf]([file:///C:/Users/91843/Documents/My%20Resume/resume_kartickjana_02.pdf](https://drive.google.com/file/d/1CFSC9YdYYut1lBmuO48-VydrosEhRxbt/view?usp=sharing))
+- 📄 Know about my experiences ([file:///C:/Users/91843/Documents/My%20Resume/resume_kartickjana_02.pdf](https://drive.google.com/file/d/1CFSC9YdYYut1lBmuO48-VydrosEhRxbt/view?usp=sharing))
 
 - ⚡ Fun fact **I am Funny**
 
